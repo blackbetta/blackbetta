@@ -8,4 +8,3 @@ FUCK GEGE FUCK SUKUNA FUCK MEI MEI FUCK JJK FUCK SHIBUYA FUCK THE EDITORD FUCK T
 int if u like stsg 🐺💕🎀 read my strawpage, rentry, or carrd for actual info :3 SIGN ATABOOK PLS
 
 ![](https://files.catbox.moe/1fxtcq.jpeg)
-![](https://files.catbox.moe/qkv4l5.jpeg)
