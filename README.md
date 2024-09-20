@@ -1,4 +1,4 @@
-deecent looking gh + new jjk rant/valorant loredrop coming soon
+I'LL UPDATE /FEARSREVEALED SOON PROMISSE
 
 kiss me (int with me) if u like stsg, nanobomb, yorunix, or isekko 🐺💕🎀 :3 SIGN ATABOOK/RETROSPRING AND DRAW ON MY STRAWPAGE PLS
 
