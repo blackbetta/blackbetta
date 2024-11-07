@@ -1,6 +1,6 @@
 I'LL UPDATE /FEARSREVEALED SOON PROMISSE
 
-kiss me (int with me) if u fw my interests 🐺💕🎀 :3 SIGN ATABOOK/RETROSPRING AND DRAW ON MY STRAWPAGE PLS
+kiss me (int with me) if u fw my interests 🐺💕🎀 :3 SIGN ATABOOK/RETROSPRING AND DRAW ON MY STRAWPAGE PLS   yes i am in america pls pray for me
 
 visit here to find a dominant alpha near you:
 [rentry](https://rentry.co/satorussuguru) [strawpage](https://divinedogs.straw.page) [atabook](https://tokki.atabook.org) [retrospring](https://retrospring.net/@yorunix)
