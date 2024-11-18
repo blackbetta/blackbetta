@@ -6,5 +6,5 @@ visit here to find a dominant alpha near you:
 [rentry](https://rentry.co/bulletwound) [strawpage](https://divinedogs.straw.page) [atabook](https://tokki.atabook.org) [retrospring](https://retrospring.net/@yorunix)
 
 <p align="center">
-  <img src="https://files.catbox.moe/qqtjgg.png">
+  <img src="https://files.catbox.moe/ri5p2d.png">
 </p>
