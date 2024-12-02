@@ -1,10 +1,7 @@
-I'LL UPDATE /FEARSREVEALED SOON PROMISSE
-
-kiss me (int with me) if u fw my interests 🐺💕🎀 :3 SIGN ATABOOK/RETROSPRING AND DRAW ON MY STRAWPAGE PLS
-
-visit here to find a dominant alpha near you:
-[rentry](https://rentry.co/bulletwound) [strawpage](https://fated.straw.page) [atabook](https://tokki.atabook.org) [retrospring](https://retrospring.net/@yorunix) [color my tree](https://colormytree.me/2024/01JDZWBFWWS6A32CG85JN61WVD)
+<p align="center">
+[rentry](https://rentry.co/bulletwound) ‎ ‎ ‎   [atabook](https://tokki.atabook.org)  ‎ ‎ ‎  [color my tree](https://colormytree.me/2024/01JDZWBFWWS6A32CG85JN61WVD)
+</p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/k9q965.png">
+  <img src="https://files.catbox.moe/xlr64s.png">
 </p>
