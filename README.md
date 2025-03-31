@@ -5,3 +5,6 @@
 <p align="center">
   <img src="https://files.catbox.moe/6syzr3.png">
 </p>
+<p align="center">
+  ok guys lets hit 200 follow. make sure to smash that subscribe button and i'll drop celebratory 200 follower arr.t.
+</p>
