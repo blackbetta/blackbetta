@@ -6,5 +6,5 @@
   <img src="https://files.catbox.moe/jdditr.png">
 </p>
 <p align="center">
-  dropping new strawpage soon cause the downgrade is crazy (ckeck out destined.straw.page for my best work yet 👅👅)
+  dropping new strawpage soon cause the upgrade is crazy (ckeck out destined.straw.page for my best work yet 👅👅)
 </p>
