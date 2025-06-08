@@ -8,3 +8,6 @@
 <p align="center">
   dropping new strawpage soon cause my current one is buns
 </p>
+<p align="center">
+<a href="https://rentry.co/nrmanreedus_"> please read</a>
+</p>
