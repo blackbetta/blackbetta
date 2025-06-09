@@ -9,5 +9,5 @@
   dropping new strawpage soon cause my current one is buns
 </p>
 <p align="center">
-<a href="https://rentry.co/nrmanreedus_"> please read</a>
+<a href="https://rentry.co/nrmanreedus_"> look at this !!</a>
 </p>
