@@ -3,7 +3,7 @@
   </p>
 ‎ ‎ 
 <p align="center">
-  <img src="">
+  <img src="https://www.mediafire.com/file/c0w49x7kpqml69k/Untitled1178_20250812185242.png/file">
 </p>
 <p align="center">
   dropping new strawpage soon cause my current one is buns
