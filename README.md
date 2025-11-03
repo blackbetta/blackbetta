@@ -8,6 +8,3 @@
 <p align="center">
   dropping new strawpage soon cause my current one is buns and a year old
 </p>
-<p align="center">
-<a href="https://rentry.co/nrmanreedus_"> hi </a>
-</p>
