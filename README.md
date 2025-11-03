@@ -6,7 +6,7 @@
 <img src="https://github.com/user-attachments/assets/0a68cc47-640a-4207-aa24-ad05cbd24ae6">
 </p>
 <p align="center">
-  dropping new strawpage soon cause my current one is buns and nearly a year old
+  dropping new strawpage soon cause my current one is buns and a year old
 </p>
 <p align="center">
 <a href="https://rentry.co/nrmanreedus_"> hi </a>
