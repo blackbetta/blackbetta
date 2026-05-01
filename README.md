@@ -5,6 +5,6 @@
   all old/outdated but info shown is still correct
 </p> 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/5c05e71d-4bf3-4a0c-8602-a860375e425b">
+<img width="800" height="600" alt="image" src="https://github.com/user-attachments/assets/704c6769-7403-4f5a-ba38-a90864677825" />
 </p>
 
