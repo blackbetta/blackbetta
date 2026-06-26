@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="https://rentry.co/vogue"> rentry</a>  ‎ ‎ ‎  <a href="https://tokki.atabook.org"> atabook</a>  ‎ ‎ ‎  <a href="https://enditall.straw.page"> strawpage</a>
+  <a href="https://rentry.co/vogue"> rentry</a>  ‎ ‎ ‎  <a href="https://inumimii.atabook.org"> atabook</a>  ‎ ‎ ‎  <a href="https://enditall.straw.page"> strawpage</a>
   </p>
 
 <p align="center">
